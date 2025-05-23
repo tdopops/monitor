@@ -132,8 +132,8 @@ qichengwei.com
 #yueduxi
 zmgmw.com
 okrzhzj.com
-wdrmyywx.com|线上在用域名掉备案联系运维
-jx1866.com|线上在用域名掉备案联系运维
+fxhdjy.com|线上在用域名掉备案联系运维
+2hlcjc.com|线上在用域名掉备案联系运维
 #kgq
 15qctz.com|线上在用域名掉备案联系运维
 wnjxnx.com|安卓下载
