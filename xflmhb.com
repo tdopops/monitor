@@ -15,6 +15,7 @@ zgxspt.com
 #壹直播
 lieyingtz.com
 #one
+gymr8.com
 tzsbyg.com
 nzxmy.com
 xhyfw.com
