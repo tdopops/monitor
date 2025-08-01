@@ -18,9 +18,7 @@ lieyingtz.com
 bdsy56.com
 gzjsqx.com
 gymr8.com
-tzsbyg.com
 nzxmy.com
-xhyfw.com
 pdsklj.cn
 pwrgnez.com
 xatjgis.com
