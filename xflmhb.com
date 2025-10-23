@@ -141,7 +141,6 @@ fxhdjy.com|线上在用域名掉备案联系运维
 2hlcjc.com|线上在用域名掉备案联系运维
 #kgq
 15qctz.com
-npwltg.com
 qmuiw.com|线上在用域名掉备案联系运维
 wnjxnx.com|安卓下载
 yushanvip.com
