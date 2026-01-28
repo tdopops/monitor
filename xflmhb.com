@@ -171,8 +171,11 @@ fajbnxh.com
 bjgdds.com
 cfsdeyypt.com
 cmwhwh.com
-cqxbrl.com
 bovehub.com
+cqzhxs.com
+sxgzmy.com
+guzeyou.com
+hzzyjkys.com
 #xlyios
 cxqyswx.com
 #beian backup domain
@@ -293,7 +296,6 @@ mobile.goxopn.com
 #APP
 leilvshi8.com
 yijuqh.com
-bpy0769.com
 # vas
 yyzcsb.com
 ybdxjy.com
