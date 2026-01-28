@@ -135,10 +135,12 @@ nongpgp.com
 ronghoucq.com
 qichengwei.com
 #yueduxi
-zmgmw.com
+nouuzge.com
 okrzhzj.com
-fxhdjy.com|线上在用域名掉备案联系运维
-2hlcjc.com|线上在用域名掉备案联系运维
+sybinn.com|线上在用域名掉备案联系运维
+bole573.com|线上在用域名掉备案联系运维
+ctdqhmb.com|线上在用域名掉备案联系运维
+dj0931.com|线上在用域名掉备案联系运维
 #kgq
 15qctz.com
 qmuiw.com|线上在用域名掉备案联系运维
