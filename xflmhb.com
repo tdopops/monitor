@@ -19,15 +19,11 @@ esjmdr.com
 bdsy56.com
 gzjsqx.com
 gymr8.com
-nzxmy.com
 pdsklj.cn
-pwrgnez.com
 xatjgis.com
 jxycfdjz.com
 yzsj6.com
 hj2061.com
-gpgreii.com
-gaoertech.com|apk下载
 #广告
 dzgaotu.com|线上在用域名掉备案请找运维
 #qqc
