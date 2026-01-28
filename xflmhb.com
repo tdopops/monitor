@@ -263,9 +263,6 @@ tzsbyg.com
 #guazi
 pbtmd.com|线上在用域名掉备案请找运维
 #backup-beimi-beian
-#clicli-dsp
-agmgmk.com|线上在用域名掉备案请找运维
-3iotd.com|线上在用域名掉备案请找运维
 #guojiang-kuaiying
 znnongye.com
 clinvoice.com
