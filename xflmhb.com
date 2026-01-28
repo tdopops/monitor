@@ -167,10 +167,7 @@ sdfbfwer.xyz
 #jkmh
 shiakiw.com
 #cyys 茶顏悅色 
-0411lab.com|线上在用域名掉备案请找运维
-0x335.com
 fajbnxh.com
-iyun168.com
 bjgdds.com
 cfsdeyypt.com
 cmwhwh.com
@@ -293,23 +290,10 @@ mobile.cwjsjt.com
 mobile.szacu.com
 mobile.dlsszc.com
 mobile.goxopn.com
-#APK
+#APP
 leilvshi8.com
 yijuqh.com
-qr8u6n.com
 bpy0769.com
-as7zy5.com
-95act.com
-xyly04.com
-d30ny.com
-y2s7oi.com
-fqbweb.com
-dsfmlw.com
-gdsunho.com
-95act.com
-as7zy5.com
-xyly04.com
-d30ny.com
 # vas
 yyzcsb.com
 ybdxjy.com
