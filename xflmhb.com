@@ -126,7 +126,6 @@ nongpgp.com
 ronghoucq.com
 qichengwei.com
 #yueduxi
-nouuzge.com
 okrzhzj.com
 sybinn.com|线上在用域名掉备案联系运维
 bole573.com|线上在用域名掉备案联系运维
