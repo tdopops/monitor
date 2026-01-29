@@ -28,15 +28,10 @@ hj2061.com
 dzgaotu.com|线上在用域名掉备案请找运维
 #qqc
 czclfp.com
-yhcdnc.com
-midozx.com
-miuuer.com
-wangnan666.xyz
 shengweiwh.xyz
 layue.xyz
 shengjiewudao.xyz
 zhijiwenhua.xyz
-xunhai.xyz
 sanshouqiye.xyz
 dkdwhcm.xyz
 zhongyuwangluo.xyz
