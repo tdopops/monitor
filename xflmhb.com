@@ -12,8 +12,6 @@ czfyqx.com
 fnszyfg.com|线上在用域名掉备案请找运维
 sxmwwj.com
 zgxspt.com
-#壹直播
-lieyingtz.com
 #one
 esjmdr.com
 bdsy56.com
