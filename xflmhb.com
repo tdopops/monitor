@@ -56,9 +56,7 @@ jdylds.com
 wznjkqs.cn
 ahplm.com
 carh2.com
-chepinduoduo.com
 nongpgp.com
-ronghoucq.com
 qichengwei.com
 #yueduxi
 okrzhzj.com
