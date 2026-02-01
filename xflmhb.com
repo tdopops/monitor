@@ -30,11 +30,9 @@ layue.xyz
 shengjiewudao.xyz
 zhijiwenhua.xyz
 sanshouqiye.xyz
-dkdwhcm.xyz
 zhongyuwangluo.xyz
 
-#xhyzz
-yincva.com
+
 #ynzb
 sdylnj.com
 #zltz
@@ -78,8 +76,6 @@ guangjuxinxinxi.xyz
 zLxxzx.xyz
 #appxiazai
 zhongyuwangLuo.xyz
-#hbsp
-sdfbfwer.xyz
 #jkmh
 shiakiw.com
 #cyys 茶顏悅色 
@@ -99,31 +95,9 @@ eprdfv.com
 nuebop.com
 guocyy.com
 #qqcpic
-qyhcgg.com
 kakkw.com
 jjawa.com
-hnhxjk.com
-#qqc-xhy-erheyi
-hrqhds.com
-xflmhb.com
-jrmsxw.com
-zjutnh.com
-sdjylk.com 
-dlcdjc.com
-ahplm.com
-midozx.com
-kemfsj.com
-cqzhxs.com|线上在用域名掉备案请找运维
-sxgzmy.com|线上在用域名掉备案请找运维
-jmzcsb.com|线上在用域名掉备案请找运维
-zcycwl.com|线上在用域名掉备案请找运维
-lsmmrg.com|线上在用域名掉备案请找运维
-h5s459v.com|线上在用域名掉备案请找运维
-kfx008.com|线上在用域名掉备案请找运维
-fjptac.com|线上在用域名掉备案请找运维
-gagdsb.com|线上在用域名掉备案请找运维
-arqqsc.com|线上在用域名掉备案请找运维
-xmmej.com|线上在用域名掉备案请找运维
+
 #clicli-dsp
 bszd119.com|线上在用域名掉备案请找运维
 tieten365.com|线上在用域名掉备案请找运维
@@ -168,21 +142,3 @@ yode19.com
 #APP
 leilvshi8.com
 yijuqh.com
-# vas
-yyzcsb.com
-ybdxjy.com
-cnwljd.com
-jsnlgf.com
-duihop.com
-gucead.com
-ccbmjz.com
-wbdrq.com
-cnwljd.com
-jsnlgf.com
-duihop.com
-cnwljd.com
-jsnlgf.com
-duihop.com
-cnwljd.com
-jsnlgf.com
-duihop.com
