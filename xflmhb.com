@@ -128,7 +128,6 @@ sjfljc.com
 gzrejc.com
 tzsbyg.com
 #guazi
-pbtmd.com|线上在用域名掉备案请找运维
 #backup-beimi-beian
 #T08
 bh3ukk.com
