@@ -88,8 +88,6 @@ cqzhxs.com
 sxgzmy.com
 guzeyou.com
 hzzyjkys.com
-#xlyios
-cxqyswx.com
 #beian backup domain
 eprdfv.com
 nuebop.com
