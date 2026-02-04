@@ -105,16 +105,9 @@ bbobos.com
 mcxxoj.com
 hxzhyl.com
 sxmwwj.com
-ytjjd.com
-hwjalx.com
-whevdc.com
-txqjyw.com
-gglxzs.com
-whtrny.com
 xinady.com
 cfewye.com
 sjfljc.com
-gzrejc.com
 tzsbyg.com
 #guazi
 #backup-beimi-beian
