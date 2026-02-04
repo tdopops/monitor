@@ -66,7 +66,6 @@ zysyfybjy.com
 wlzzld.com
 bjlyt03.com
 #gexiangmubeian
-8ydfa.com
 gawpxzl.com
 jxptaca.com
 guangjuxinxinxi.xyz
@@ -86,10 +85,6 @@ cqzhxs.com
 sxgzmy.com
 guzeyou.com
 hzzyjkys.com
-#beian backup domain
-eprdfv.com
-nuebop.com
-guocyy.com
 #qqcpic
 kakkw.com
 jjawa.com
@@ -108,7 +103,6 @@ vyilwh.com|线上在用域名掉备案请找运维
 #beian
 bbobos.com
 mcxxoj.com
-wfgrzx.com
 hxzhyl.com
 sxmwwj.com
 ytjjd.com
@@ -116,7 +110,6 @@ hwjalx.com
 whevdc.com
 txqjyw.com
 gglxzs.com
-keyyvu.com
 whtrny.com
 xinady.com
 cfewye.com
