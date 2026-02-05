@@ -105,10 +105,7 @@ bbobos.com
 mcxxoj.com
 hxzhyl.com
 sxmwwj.com
-xinady.com
-cfewye.com
-sjfljc.com
-tzsbyg.com
+sjfljc.co
 #guazi
 #backup-beimi-beian
 #T08
