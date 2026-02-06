@@ -39,8 +39,6 @@ laomeimhsk.com
 #jfm
 ffnfff.com
 jjawa.com
-#jcdsp
-jk.sxhuadao.cn
 #qiezi
 cswcxyedu.com
 jdylds.com
