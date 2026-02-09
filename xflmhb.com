@@ -84,7 +84,6 @@ sxgzmy.com
 guzeyou.com
 hzzyjkys.com
 #qqcpic
-kakkw.com
 jjawa.com
 
 #clicli-dsp
