@@ -53,7 +53,7 @@ ahplm.com
 carh2.com
 qichengwei.com
 #yueduxi
-okrzhzj.com
+okhuyuhang.com|线上预热域名掉备案联系运维
 sybinn.com|线上在用域名掉备案联系运维
 bole573.com|线上在用域名掉备案联系运维
 ctdqhmb.com|线上在用域名掉备案联系运维
@@ -95,7 +95,6 @@ tieten365.com|线上在用域名掉备案请找运维
 82484699.com|线上在用域名掉备案请找运维
 gysqzyzxx.com|线上在用域名掉备案请找运维
 csjbbx.com|线上在用域名掉备案请找运维
-dhjutug.com|线上在用域名掉备案请找运维
 fnrlgg.com|线上在用域名掉备案请找运维
 #dsp-gj
 gdpcdz.com|线上在用域名掉备案请找运维
