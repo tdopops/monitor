@@ -53,7 +53,7 @@ ahplm.com
 carh2.com
 qichengwei.com
 #yueduxi
-okhuyuhang.com|线上预热域名掉备案联系运维
+huyuhang.com|线上预热域名掉备案联系运维
 sybinn.com|线上在用域名掉备案联系运维
 bole573.com|线上在用域名掉备案联系运维
 ctdqhmb.com|线上在用域名掉备案联系运维
