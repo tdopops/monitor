@@ -86,9 +86,18 @@ cqzhxs.com
 sxgzmy.com
 guzeyou.com
 hzzyjkys.com
+#ldy
+doufan888.com
+yuxiu1980.com
+wandefu98.com
+8qingxi.com
+nmgxpt.com
+czwst1688.com
+gagdsb.com
+arqqsc.com
+gxdcrm.com
 #qqcpic
 jjawa.com
-
 #clicli-dsp
 bszd119.com|线上在用域名掉备案请找运维
 tieten365.com|线上在用域名掉备案请找运维
@@ -115,9 +124,10 @@ fjerect.com
 gongg08.com
 yode19.com
 
-#APP
+#APP 下載
 leilvshi8.com
 yijuqh.com
+hzpabxw.com
 #bak-beian-beimi
 hzpabxw.com
 
