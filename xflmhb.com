@@ -19,7 +19,6 @@ gzjsqx.com
 gymr8.com
 pdsklj.cn
 xatjgis.com
-jxycfdjz.com
 yzsj6.com
 hj2061.com
 hztpyzp.com
