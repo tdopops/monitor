@@ -124,7 +124,6 @@ yode19.com
 
 #APP 下載
 leilvshi8.com
-yijuqh.com
 hzpabxw.com
 jiuji88.com
 #bak-beian-beimi
