@@ -21,7 +21,6 @@ pdsklj.cn
 xatjgis.com
 yzsj6.com
 hj2061.com
-hztpyzp.com
 hzsjsnjl.com
 hzsanfa.com
 hynybzh.com
