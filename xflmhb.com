@@ -39,9 +39,6 @@ cxqyswx.com
 #zltz
 #apk下载
 laomeimhsk.com
-#jfm
-ffnfff.com
-jjawa.com
 #qiezi
 cswcxyedu.com
 jdylds.com
@@ -132,3 +129,4 @@ hzpabxw.com
 jiunuow.com
 hxcztech.com
 hykqyfw.com
+jjawa.com
