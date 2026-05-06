@@ -9,7 +9,6 @@ fjxtrs.com
 zbx999.com
 czfyqx.com
 #看个球直播
-fnszyfg.com|线上在用域名掉备案请找运维
 sxmwwj.com
 zgxspt.com
 #one
