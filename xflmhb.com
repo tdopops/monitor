@@ -16,10 +16,6 @@ esjmdr.com
 bdsy56.com
 gzjsqx.com
 gymr8.com
-xatjgis.com
-yzsj6.com
-hj2061.com
-hzsjsnjl.com
 hzsanfa.com
 hynybzh.com
 hymjlsh.com
