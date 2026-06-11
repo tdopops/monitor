@@ -19,8 +19,6 @@ gymr8.com
 hzsanfa.com
 hynybzh.com
 hymjlsh.com
-#广告
-dzgaotu.com|线上在用域名掉备案请找运维
 #qqc
 shengweiwh.xyz
 layue.xyz
