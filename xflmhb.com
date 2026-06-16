@@ -37,7 +37,6 @@ jdylds.com
 #xiaohuangshu
 #zmwdsp
 ahplm.com
-carh2.com
 qichengwei.com
 #yueduxi
 huyuhang.com|线上预热域名掉备案联系运维
