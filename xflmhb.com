@@ -52,7 +52,6 @@ dj0931.com|线上在用域名掉备案联系运维
 15qctz.com
 qmuiw.com|线上在用域名掉备案联系运维
 yushanvip.com
-yuechifun.com
 zysyfybjy.com
 #fanchabaike
 wlzzld.com
