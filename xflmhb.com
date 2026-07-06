@@ -69,8 +69,6 @@ fajbnxh.com
 bjgdds.com
 cfsdeyypt.com
 bovehub.com
-cqzhxs.com
-sxgzmy.com
 guzeyou.com
 hzzyjkys.com
 #ldy
