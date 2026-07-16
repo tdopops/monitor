@@ -8,6 +8,8 @@ xyt510.com
 fjxtrs.com
 zbx999.com
 czfyqx.com
+sxdehuashi.com
+shyunzhiyi.com
 #看个球直播
 sxmwwj.com
 zgxspt.com
