@@ -22,8 +22,6 @@ rjpdf.com
 qozzh.com
 syucp.com
 youguancm.com
-zzxhsdsiss.com
-ymjc818.com
 scbixiakj.com
 #qqc
 shengweiwh.xyz
