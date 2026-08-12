@@ -88,7 +88,6 @@ bszd119.com|线上在用域名掉备案请找运维
 tieten365.com|线上在用域名掉备案请找运维
 82484699.com|线上在用域名掉备案请找运维
 gysqzyzxx.com|线上在用域名掉备案请找运维
-csjbbx.com|线上在用域名掉备案请找运维
 fnrlgg.com|线上在用域名掉备案请找运维
 #dsp-gj
 gdpcdz.com|线上在用域名掉备案请找运维
