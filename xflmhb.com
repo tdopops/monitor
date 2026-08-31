@@ -10,9 +10,6 @@ zbx999.com
 czfyqx.com
 sxdehuashi.com
 shyunzhiyi.com
-#看个球直播
-sxmwwj.com
-zgxspt.com
 #one
 bdsy56.com
 gzjsqx.com
@@ -50,6 +47,7 @@ dj0931.com|线上在用域名掉备案联系运维
 15qctz.com
 qmuiw.com|线上在用域名掉备案联系运维
 dhds100.com
+jlrzlh.com
 #fanchabaike
 wlzzld.com
 bjlyt03.com
