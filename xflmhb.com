@@ -100,7 +100,6 @@ tjfuxinjia.com|线上在用域名掉备案请找运维
 bbobos.com
 mcxxoj.com
 hxzhyl.com
-sxmwwj.com
 #guazi
 #backup-beimi-beian
 #T08
