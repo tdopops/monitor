@@ -33,7 +33,6 @@ cxqyswx.com
 laomeimhsk.com
 #qiezi
 cswcxyedu.com
-jdylds.com
 #xiaohuangshu
 #zmwdsp
 qichengwei.com
