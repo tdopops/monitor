@@ -3,7 +3,6 @@ mcxxoj.com
 hxzhyl.com
 bbobos.com
 mlktbl.com
-52manon.com
 xyt510.com
 fjxtrs.com
 zbx999.com
