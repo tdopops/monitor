@@ -13,10 +13,6 @@ shyunzhiyi.com
 bdsy56.com
 gzjsqx.com
 gymr8.com
-xqjby.com
-rjpdf.com
-qozzh.com
-syucp.com
 scbixiakj.com
 #qqc
 shengweiwh.xyz
