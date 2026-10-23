@@ -41,7 +41,7 @@ dj0931.com|线上在用域名掉备案联系运维
 15qctz.com
 qmuiw.com|线上在用域名掉备案联系运维
 dhds100.com
-jlrzlh.com
+yuandajiaoyu.com
 #fanchabaike
 wlzzld.com
 bjlyt03.com
