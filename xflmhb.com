@@ -4,9 +4,6 @@ hxzhyl.com
 bbobos.com
 mlktbl.com
 xyt510.com
-fjxtrs.com
-zbx999.com
-czfyqx.com
 sxdehuashi.com
 shyunzhiyi.com
 #one
