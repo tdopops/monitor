@@ -75,7 +75,6 @@ bszd119.com|线上在用域名掉备案请找运维
 82484699.com|线上在用域名掉备案请找运维
 gysqzyzxx.com|线上在用域名掉备案请找运维
 tanlinkerp.com|线上在用域名掉备案请找运维
-muzzyxu.com|线上在用域名掉备案请找运维
 xiaomo8888.com|线上在用域名掉备案请找运维
 haobiganzi.com|线上在用域名掉备案请找运维
 sdshimeite.com|线上在用域名掉备案请找运维
@@ -85,7 +84,6 @@ waitingfml.com|线上在用域名掉备案请找运维
 gdpcdz.com|线上在用域名掉备案请找运维
 vyilwh.com|线上在用域名掉备案请找运维
 tieten365.com|线上在用域名掉备案请找运维
-iyuejk.com|线上在用域名掉备案请找运维
 tjfuxinjia.com|线上在用域名掉备案请找运维
 #beian
 bbobos.com
