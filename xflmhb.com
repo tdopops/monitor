@@ -1,8 +1,6 @@
 #fruit
 mcxxoj.com
 hxzhyl.com
-bbobos.com
-mlktbl.com
 xyt510.com
 sxdehuashi.com
 shyunzhiyi.com
