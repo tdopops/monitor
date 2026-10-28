@@ -28,7 +28,6 @@ cswcxyedu.com
 qichengwei.com
 #yueduxi
 huyuhang.com|线上预热域名掉备案联系运维
-mhnzzk.com|线上在用域名掉备案联系运维
 bole573.com|线上在用域名掉备案联系运维
 ctdqhmb.com|线上在用域名掉备案联系运维
 dj0931.com|线上在用域名掉备案联系运维
