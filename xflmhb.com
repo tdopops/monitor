@@ -84,7 +84,6 @@ vyilwh.com|线上在用域名掉备案请找运维
 tieten365.com|线上在用域名掉备案请找运维
 tjfuxinjia.com|线上在用域名掉备案请找运维
 #beian
-bbobos.com
 mcxxoj.com
 hxzhyl.com
 #guazi
