@@ -1,10 +1,9 @@
 #fruit
 mcxxoj.com
 hxzhyl.com
-xyt510.com
 shyunzhiyi.com
 #one
-zzhzrs.com
+fuyonglin.com
 bdsy56.com
 gzjsqx.com
 gymr8.com
